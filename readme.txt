@@ -1,0 +1,1 @@
+Salutations distinguées mon brave!
